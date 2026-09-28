@@ -1,0 +1,2 @@
+# premium-reduction-cut-001-reduction-woodcut-multi-colo
+Tired of losing track of your reduction woodcut experiments across multiple color layers? The Reduction Woodcut &amp; Multi Color Craft Lab is a Notion template built specifically to organize, document, and perfect your multi-color reduction prints without the chaos.  This template eliminates the guesswork from planning complex reduction sequences and
